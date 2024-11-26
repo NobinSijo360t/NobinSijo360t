@@ -1,4 +1,4 @@
-[Black and Yellow Modern Corporate Professional Business Consultant LinkedIn Banner](https://github.com/user-attachments/assets/625b6a3b-a633-4094-939b-6dc532626649)
+![](https://github.com/user-attachments/assets/625b6a3b-a633-4094-939b-6dc532626649)
 
 #### Crafting engaging experiences through the power of design and code
 ## 🌐 Socials:
